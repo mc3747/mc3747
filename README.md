@@ -1,4 +1,4 @@
-### 🌈熬过万丈孤独，藏下星辰大海，努力提升自己永远比仰望别人更有意义🌈
+### 🌈熬过万丈孤独，藏下星辰大海，努力提升自己,永远比仰望别人更有意义!🌈
 
 <!--
 **mc3747/mc3747** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
